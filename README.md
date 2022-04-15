@@ -1,3 +1,1 @@
-I like code.
-
-iiYese@outlook.com
+https://iiyese.moe/
