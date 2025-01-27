@@ -1,4 +1,5 @@
-# [I can't sleep](https://blog.paulbiggar.com/i-cant-sleep/) 
-[![Ceasefire Now](https://badge.techforpalestine.org/default)](https://techforpalestine.org/learn-more)
+דאַלױ פּאָליצײ
+.لا يوجد سبب لهذه الرسالة إلا نشر الخوف بين الناس الذين يخافون من اللغة العربية
+Born too late to explore the seas, too early to explore the stars, just in time to watch empires crumble
 
 Available for contracting: iiyese@outlook.com
